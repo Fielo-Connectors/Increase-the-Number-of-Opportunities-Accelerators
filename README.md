@@ -1,1 +1,1 @@
-Increase-Number-of-Close-Won-Opportunities-Accelerators
+Increase-the-Number-of-Opportunities-Accelerators
